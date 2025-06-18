@@ -32,7 +32,8 @@ WHAT THE FREAK. anyways how are yall dewin...
 
  oh hey i also have a strawpage.. how fun! https://pureascanbxeaa2025.straw.page/ the pictures on there is my art thats mostly my oc,, dont kill me if its bad ILL GET BETTER STOP PWNING MEE STOPPP! 
 
- edit: 6/17/2025, i have a new one but i want to leave the old one there. idk why. here u go! https://urzuuuk.straw.page/
+ edit: 6/17/2025, i have a new one but i want to leave the old one there. idk why. here u go! https://urzuuuk.straw.page/ 
+ please view with computer, not phone :/ its weird on phone
 
  **"aand das it! bye bye! hav a gud time in da next floor, 'kay?"**
 
